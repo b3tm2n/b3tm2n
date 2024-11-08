@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tech & Security Department
 - 🌱 I’m currently learning Cyber Security
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ahmadhrizan001@gmail.com
+- 📫 How to reach me
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: Love to play video games
 
